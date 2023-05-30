@@ -2,7 +2,7 @@ Hello there,
 
 My name is Steri Llakaj and Im currenctly studing at University of Illinois at Chicago for Software Engineering.
 
-Currently working to better my skills on problem solving and coding.
+Currently working to better my skills on problem solving and coding(Have a private repo with school and personal projects).
 
 Interested in Fintech and Science.
 
