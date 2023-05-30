@@ -12,4 +12,4 @@ Currently looking for an opportunity to work in Fintech where I would like to le
 
 Speak fulenty Albanian, Bulgarian and conversational with Spanish and Italian.
 
-Travled many countries and states in USA.
+Traveled many countries and states in USA.
